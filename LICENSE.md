@@ -1,4 +1,4 @@
-# 
+# Experience 3008 like never before with hidden 3008 Scripts, the #1 Script. Includes anti-ban and instant win for unbeatable performance.
 
 
 
